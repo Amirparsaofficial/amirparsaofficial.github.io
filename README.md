@@ -1,1 +1,0 @@
-# amirparsaofficial.github.io
